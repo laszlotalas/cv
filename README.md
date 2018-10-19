@@ -1,1 +1,1 @@
-# my Curriculum vitae
+# my curriculum vitae
